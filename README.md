@@ -5,6 +5,7 @@ Pós-graduação Alfa - Aula git
 Professor: Lanceloti
 
 DUdu
-Ã© Dudo ou Aqui
+Dudu ou Aqui
 
 Macklyster
+Vira aqui, nao vira e aqui, vira!
